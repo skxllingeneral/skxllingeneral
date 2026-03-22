@@ -5,8 +5,7 @@
   <p align=center> 
 _______________________________________</p>
 <p align=center> 𝑜𝑛𝑙𝑦 𝑜𝑜𝑚𝑓 𝑜𝑛 𝑔𝑖𝑡ℎ𝑢𝑏: <br> 
- <a href=https://github.com/neytirikin> @neytiri 
-</p> 
+<a href=https://github.com/axgel4life> @axgel4life </a>ㅤㅤ/ㅤㅤ<a href=https://github.com/neytirikin> @neytirikin </a></p> 
 <p align="center"> <img width="439" height="116" alt="image-removebg-preview (18)" src="https://github.com/user-attachments/assets/db28ec9e-21a8-4951-9fd0-2460f19d2199" />
 <p align="center"> . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
