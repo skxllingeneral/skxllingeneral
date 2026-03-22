@@ -1,7 +1,6 @@
 <p align="center">   ᶻ 𝗓 𐰁 .ᐟ
-<p align="center"> <img width="484" height="297" alt="Untitled90_20260320215753" src="https://github.com/user-attachments/assets/6db1efc4-7454-4251-8fcd-dda507705794" />
+<p align="center"> <img width="484" height="297" alt="Untitled90_20260320215753" src="https://media1.tenor.com/m/1EfGPT5GWM4AAAAC/miles-quaritch-avatar-miles-quaritch.gif" />
 <p align="center">  '𝑊ℎ𝑦 𝑠𝑜 𝑏𝑙𝑢𝑒? '
-<p align=center> ˚₊ ۶ৎ ˙   𝐶𝑜𝑙𝑜𝑛𝑒𝑙 𝑀𝑖𝑙𝑒𝑠 𝑄𝑢𝑎𝑟𝑖𝑡𝑐ℎ  𓈒ㅤׂ ࣪ ⭒
   <p align=center> 
 _______________________________________</p>
 <p align=center> 𝑜𝑛𝑙𝑦 𝑜𝑜𝑚𝑓 𝑜𝑛 𝑔𝑖𝑡ℎ𝑢𝑏: <br> 
