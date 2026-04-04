@@ -4,7 +4,7 @@
   <p align=center> 
 _______________________________________</p>
 <p align=center> 𝑜𝑛𝑙𝑦 𝑜𝑜𝑚𝑓 𝑜𝑛 𝑔𝑖𝑡ℎ𝑢𝑏: <br> 
-<a href=https://github.com/axgel4life> @axgel4life </a>ㅤㅤ<img src=https://github.com/user-attachments/assets/92ef8c50-da9a-41ba-9ea9-5cac6085066a>ㅤㅤ<a href=https://github.com/neytirikin> @neytirikin </a></p> 
+<a href=https://github.com/axgel4life> @axgel4life </a>ㅤㅤ<img src=https://github.com/user-attachments/assets/d4d98521-3028-4096-b147-02f8eda4b79d>ㅤㅤ<a href=https://github.com/neytirikin> @neytirikin </a></p> 
 <p align="center"> <img width="466" height="70" alt="image-removebg-preview (29)" src="https://github.com/user-attachments/assets/a8566081-66b4-40e9-9f63-2b315e565623" />
 
 
